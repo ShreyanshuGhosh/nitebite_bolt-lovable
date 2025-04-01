@@ -1,1 +1,0 @@
-# nitebite_bolt-lovable
